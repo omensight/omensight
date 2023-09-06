@@ -9,7 +9,6 @@
 
 - 📫 How to reach me **mijael.viricochea@outlook.com**
 
-<h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
 
